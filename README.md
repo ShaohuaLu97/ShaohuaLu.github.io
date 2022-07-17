@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ShaohuaLu
 - 👀 I’m interested in tennis and kickboxing
-- 🌱 I’m currently learning how to programming
+- 🌱 I’m still on the journey studying
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me email: tomlu1234567@gmail.com
 
